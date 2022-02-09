@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Minranico
-- 👀 I will to be a Business Analysis
+- 👋 Hi, I’m @Minranico，a girl love viz data analysis.welcome to communicate with me!
+- 👀 新年要加油鸭！
 
 - 📫 19910126019@163.com 
 
